@@ -1,4 +1,4 @@
-![Giorno-Mista-PPPFull.png](https://i.postimg.cc/xjLfDsBk/Giorno-Mista-PPPFull.png) ![idgaf3.png](https://i.postimg.cc/ZqNJq2Gk/idgaf3.png)  ![JOJO-jjba-tv.gif](https://i.postimg.cc/25BgfkCN/JOJO-jjba-tv.gif) 
+![Giorno-Mista-PPPFull.png](https://i.postimg.cc/xjLfDsBk/Giorno-Mista-PPPFull.png) ![idgaf5.jpg](https://i.postimg.cc/G3Qqr2K9/idgaf5.jpg)  ![JOJO-jjba-tv.gif](https://i.postimg.cc/25BgfkCN/JOJO-jjba-tv.gif) 
 
 ![josuyasu.png](https://i.postimg.cc/cHVLyVX5/josuyasu.png) ![bymel.gif](https://i.postimg.cc/zfGMw7Td/bymel.gif) ![dhs5c30-1da9716d-0e94-48c3-96a9-2593b49d622b.gif](https://i.postimg.cc/NM9QDBRP/dhs5c30-1da9716d-0e94-48c3-96a9-2593b49d622b.gif) ![e139d116.png](https://i.postimg.cc/g0rpcmtk/e139d116.png) ![_jjba__giorno_giovanna_stamp_by_starrywave_db8e46n.gif](https://i.postimg.cc/yW49s7mD/_jjba__giorno_giovanna_stamp_by_starrywave_db8e46n.gif) ![jjba__joseph_joestar_fan_stamp_by_reykholtz_daejn5a.gif](https://i.postimg.cc/JnKMRxjZ/jjba__joseph_joestar_fan_stamp_by_reykholtz_daejn5a_(1).gif) ![da6nxym-75a65194-5b75-4065-b52e-a690e9949945.png](https://i.postimg.cc/mrJkJMvT/da6nxym-75a65194-5b75-4065-b52e-a690e9949945.png)
 
@@ -28,6 +28,6 @@
 
 ![real-jojo-fan-footage.gif](https://i.postimg.cc/4dyw7nN8/real-jojo-fan-footage.gif)
 
-![11239144-b79d8.gif](https://i.postimg.cc/fW53XNzG/11239144-b79d8.gif) ![11247196-9cae9.gif](https://i.postimg.cc/tg07yRkx/11247196-9cae9.gif) ![JOTARO-BITCH-BLINGEE.gif](https://i.postimg.cc/NfMKkzL5/JOTARO-BITCH-BLINGEE.gif)
+![11239144-b79d8.gif](https://i.postimg.cc/fW53XNzG/11239144-b79d8.gif) ![11247196-9cae9.gif](https://i.postimg.cc/tg07yRkx/11247196-9cae9.gif) ![JOTARO-BITCH-BLINGEE.gif](https://i.postimg.cc/NfMKkzL5/JOTARO-BITCH-BLINGEE.gif) 
 
 ![raver.gif](https://i.postimg.cc/rsW3k23s/raver.gif) ![tumblr-inline-pdzfd3-UDqq1v11djx-500.gif](https://i.postimg.cc/MGFFfG8X/tumblr-inline-pdzfd3-UDqq1v11djx-500.gif) ![tumblr-inline-pdytheei-YC1v11djx-500.gif](https://i.postimg.cc/fy4q5gyN/tumblr-inline-pdytheei-YC1v11djx-500.gif) ![random.gif](https://i.postimg.cc/fb30YZZW/random.gif) ![tumblr-797f22842e50c31e549af6a873a0a7c5-325e11e3-75.webp](https://i.postimg.cc/0jZNLHxH/tumblr-797f22842e50c31e549af6a873a0a7c5-325e11e3-75.webp) ![lazy.gif](https://i.postimg.cc/jdKNmG6v/lazy.gif) ![tumblr-inline-pdzdv340t-G1v11djx-500.gif](https://i.postimg.cc/4dgNnTxS/tumblr-inline-pdzdv340t-G1v11djx-500.gif)
