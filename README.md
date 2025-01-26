@@ -29,3 +29,5 @@
 ![11239144-b79d8.gif](https://i.postimg.cc/fW53XNzG/11239144-b79d8.gif) ![11247196-9cae9.gif](https://i.postimg.cc/tg07yRkx/11247196-9cae9.gif) ![JOTARO-BITCH-BLINGEE.gif](https://i.postimg.cc/NfMKkzL5/JOTARO-BITCH-BLINGEE.gif) 
 
 ![raver.gif](https://i.postimg.cc/rsW3k23s/raver.gif) ![tumblr-inline-pdzfd3-UDqq1v11djx-500.gif](https://i.postimg.cc/MGFFfG8X/tumblr-inline-pdzfd3-UDqq1v11djx-500.gif) ![tumblr-inline-pdytheei-YC1v11djx-500.gif](https://i.postimg.cc/fy4q5gyN/tumblr-inline-pdytheei-YC1v11djx-500.gif) ![random.gif](https://i.postimg.cc/fb30YZZW/random.gif) ![tumblr-797f22842e50c31e549af6a873a0a7c5-325e11e3-75.webp](https://i.postimg.cc/0jZNLHxH/tumblr-797f22842e50c31e549af6a873a0a7c5-325e11e3-75.webp) ![lazy.gif](https://i.postimg.cc/jdKNmG6v/lazy.gif) ![tumblr-inline-pdzdv340t-G1v11djx-500.gif](https://i.postimg.cc/4dgNnTxS/tumblr-inline-pdzdv340t-G1v11djx-500.gif)
+
+![Untitled26-20241211175313.png](https://i.postimg.cc/Hkc4qRZg/Untitled26-20241211175313.png)
