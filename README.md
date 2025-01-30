@@ -1,4 +1,4 @@
-![Giorno-Mista-PPPFull.png](https://i.postimg.cc/xjLfDsBk/Giorno-Mista-PPPFull.png) ![Screenshot-2025-01-26-100627.png](https://i.postimg.cc/yN5rz7j7/Screenshot-2025-01-26-100627.png)  ![JOJO-jjba-tv.gif](https://i.postimg.cc/25BgfkCN/JOJO-jjba-tv.gif) 
+![Giorno-Mista-PPPFull.png](https://i.postimg.cc/xjLfDsBk/Giorno-Mista-PPPFull.png) ![Screenshot-2025-01-30-175859.png](https://i.postimg.cc/MTNsxJsz/Screenshot-2025-01-30-175859.png)  ![JOJO-jjba-tv.gif](https://i.postimg.cc/25BgfkCN/JOJO-jjba-tv.gif) 
 
 ![josuyasu.png](https://i.postimg.cc/cHVLyVX5/josuyasu.png) ![bymel.gif](https://i.postimg.cc/zfGMw7Td/bymel.gif) ![dhs5c30-1da9716d-0e94-48c3-96a9-2593b49d622b.gif](https://i.postimg.cc/NM9QDBRP/dhs5c30-1da9716d-0e94-48c3-96a9-2593b49d622b.gif) ![e139d116.png](https://i.postimg.cc/g0rpcmtk/e139d116.png) ![jjk.gif](https://i.postimg.cc/Hx5XkcBV/jjk.gif) ![jjba__joseph_joestar_fan_stamp_by_reykholtz_daejn5a.gif](https://i.postimg.cc/JnKMRxjZ/jjba__joseph_joestar_fan_stamp_by_reykholtz_daejn5a_(1).gif) ![da6nxym-75a65194-5b75-4065-b52e-a690e9949945.png](https://i.postimg.cc/mrJkJMvT/da6nxym-75a65194-5b75-4065-b52e-a690e9949945.png)
 
