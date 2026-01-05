@@ -1,4 +1,4 @@
-**<p align="center">@giomis on discord ‎  ‎<img src="https://i.postimg.cc/5y5BdbZY/TykvHaP.gif"/>‎</p>**
+**<p align="center">@puppiekaiser on discord ‎  ‎<img src="https://i.postimg.cc/5y5BdbZY/TykvHaP.gif"/>‎</p>**
 <p align="center"> <img src="https://i.postimg.cc/R0CdBb9s/diejo-and-giomis.png"/></p>
 ‎<p align="center">pt friend reqs : ✅ ︵︵ pt whispers : ✅</p>
 
